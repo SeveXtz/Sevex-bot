@@ -2,7 +2,7 @@
 
 <h1 align="center">
 <p>
-<img src= "https://telegra.ph/file/5ad9f9ef0d7fd4099696d.mp4" alt="SEVEX'S" width="720">
+<img src= "https://telegra.ph/file/ae7398a6980f852fdbedf.jpg" alt="SEVEX'S" width="720">
 </p>
 
 <p align="center">
