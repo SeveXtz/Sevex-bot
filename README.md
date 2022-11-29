@@ -48,3 +48,10 @@ sh sevex.sh
 sh qrcode.sh
 ```
 
+## Grupo de suporte no Whatsapp 
+```
+https://chat.whatsapp.com/BGxm69bdTegCYTvmzNyrX7
+🐉𝕮𝖍𝖆𝖙 - 𝕿𝖍𝖊✵𝕾𝖊𝖛𝖊𝖝𝕭𝖔𝖙🐉
+𝘎𝘙𝘜𝘗𝘖 𝘋𝘌 𝘊𝘏𝘈𝘛 𝘌 𝘛𝘌𝘚𝘛𝘌 𝘋𝘖 𝘉𝘖𝘛 𝘚𝘌𝘝𝘌𝘟
+```
+
